@@ -1,1 +1,0 @@
-Pascal Roger Junior Tauran_5025211072
